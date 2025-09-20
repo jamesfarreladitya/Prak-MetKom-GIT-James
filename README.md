@@ -1,2 +1,2 @@
 # Prak-MetKom-GIT-James
-##Gasuka Koding
+##Halo semua, Perkenalkan nama saya James Farrel Aditya 
